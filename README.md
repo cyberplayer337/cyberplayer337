@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Anton *^____^*
+- 👀 I’m interested in IT (●'◡'●) 
+- 🌱 I’m currently learning IT (⌐■_■)
+- 🎈 I’m 13 y.o. ◉_◉
